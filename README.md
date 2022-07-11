@@ -1,0 +1,2 @@
+# A-short-study-on-Rape-cases-of-India
+According to Wikipedia statement experts say that a woman is victimized in every 16 minutes. The conviction rate for rape case in India was 44.3% in 1973, it down to 37.7% in 1983, and it became 26.6% in 2010 which had been dramatically decrease over the past few years which indicate poor condition of our judicial system day by day. According to NCRB report Madhya Pradesh has the highest raw number of rape reports among Indian states, while delhi has the highest per capita rate of rape reports.
